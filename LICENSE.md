@@ -1,4 +1,4 @@
-
+Top brainrot evolution scripts é o melhor brainrot evolution scripts com mira silenciosa e ESP. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
